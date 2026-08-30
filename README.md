@@ -1,4 +1,4 @@
-# P. Shanmuga Priya — Tax Associate
+# P. Shanmuga Priya | Tax Associate
 
 A modern professional profile focused on US tax preparation, accurate documentation, and thoughtful review.
 
